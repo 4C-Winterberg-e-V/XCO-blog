@@ -37,8 +37,8 @@ Am Waltenberg 115, 59955 Winterberg
 - Camping without booking is **not permitted** on parking areas (please follow the signs).
 
 ## General Arrival
-Due to a **road closure in Niedersfeld**, please follow the official detours and allow for extra travel time.
-
+Due to a **road closure in Assinghausen** when approaching Winterberg from the Autobahn A46, please follow the official detours and allow for extra travel time.
+👉 [Strassen NRW](https://www.strassen.nrw.de/de/b480-fahrbahnsanierung-zwischen-olsberg-und-winterberg-projektueberblick.html)  
 
 ## Showers
 Free showers are available at the **Oversum in Winterberg**.  
